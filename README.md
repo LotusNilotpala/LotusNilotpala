@@ -1,7 +1,7 @@
 ***
 <h5 align="center">
   
-<img src="https://watermelon.crd.co/assets/images/gallery11/72d5152f.gif?v=2a41aca3"/> [' ' Pardon my emotions , I should probably keep it all to myself . . ' '](https://open.spotify.com/track/6UFivO2zqqPFPoQYsEMuCc?si=e0ef57f06c85468e) <img src="https://watermelon.crd.co/assets/images/gallery11/72d5152f.gif?v=2a41aca3"/>
+<img src="https://watermelon.crd.co/assets/images/gallery01/12b72072.gif?v=2a41aca3"/> [' ' Pardon my emotions , I should probably keep it all to myself . . ' '](https://open.spotify.com/track/6UFivO2zqqPFPoQYsEMuCc?si=e0ef57f06c85468e) <img src="https://watermelon.crd.co/assets/images/gallery01/12b72072.gif?v=2a41aca3"/>
 <h5 align="center">
 <img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/>
 </h5>  
