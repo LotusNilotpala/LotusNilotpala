@@ -18,7 +18,7 @@ cuddles r okay ! more info below ! <img src="https://watermelon.crd.co/assets/im
 
 for any questions or concerns , [guestbook](https://lotusnilotpala.123guestbook.com/) , info in [rentry](https://rentry.org/LotusNilotpala) !
 
-also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info :33 ! <img src="[https://watermelon.crd.co/assets/images/gallery11/faaf6eee.gif?v=2a41aca3](https://ouija.crd.co/assets/images/gallery16/c19a9ec8.gif?v=b8c53f22)"/>
+also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info :33 ! <img src="https://ouija.crd.co/assets/images/gallery16/6e077c74.gif?v=b8c53f22"/>
 </h4> 
 
 <h5 align="center">
