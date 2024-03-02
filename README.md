@@ -30,7 +30,7 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 <img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/> <img src="https://watermelon.crd.co/assets/images/gallery18/cf36d55b.png?v=2a41aca3"/> <img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/>
 </p>
 
-crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [kiochisato](https://www.tumblr.com/kiochisato) for graphics !!
+crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
 
 made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://ouija.crd.co/assets/images/gallery08/5b7226b5.png?v=b8c53f22"/>
 
