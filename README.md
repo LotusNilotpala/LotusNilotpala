@@ -22,7 +22,7 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 </h4> 
 
 <h5 align="center">
-<img src="https://watermelon.crd.co/assets/images/gallery19/3cc54246.png?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery19/3cc54246.png?v=2a41aca3"/><img src="https://watermelon.crd.co/assets/images/gallery19/3cc54246.png?v=2a41aca3"/>
+<img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/>
 </h5>  
 
 ***
