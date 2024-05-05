@@ -27,11 +27,11 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 
 ***
 <p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/> <img src="https://watermelon.crd.co/assets/images/gallery18/cf36d55b.png?v=2a41aca3"/> <img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/>
+<img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/> <img src="https://xyz.crd.co/assets/images/gallery07/fd2d31bc.gif?v=4ca63763"/>
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
 
-made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://ouija.crd.co/assets/images/gallery08/5b7226b5.png?v=b8c53f22"/>
+made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://xyz.crd.co/assets/images/gallery11/f77a4fb2.gif?v=4ca63763"/>
 
 
