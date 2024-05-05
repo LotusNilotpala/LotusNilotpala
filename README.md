@@ -3,7 +3,7 @@
   
 <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/> [' ' Pardon my emotions , I should probably keep it all to myself . . ' '](https://open.spotify.com/track/6UFivO2zqqPFPoQYsEMuCc?si=e0ef57f06c85468e) <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/>
 <h5 align="center">
-<img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/>
+<img src="https://files.catbox.moe/d2w9b9.png"/><img src="https://files.catbox.moe/d2w9b9.png"/><img src="https://files.catbox.moe/d2w9b9.png"/>
 </h5>  
 
 <h4 align="center">
@@ -22,7 +22,7 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 </h4> 
 
 <h5 align="center">
-<img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/><img src="https://ouija.crd.co/assets/images/gallery06/74f4895c.gif?v=b8c53f22"/>
+<img src="https://files.catbox.moe/d2w9b9.png"/><img src="https://files.catbox.moe/d2w9b9.png"/><img src="https://files.catbox.moe/d2w9b9.png"/>
 </h5>  
 
 ***
