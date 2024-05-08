@@ -26,7 +26,7 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 
 ***
 <p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/> <img src="https://xyz.crd.co/assets/images/gallery07/fd2d31bc.gif?v=4ca63763"/>
+<img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/> <img src="https://xyz.crd.co/assets/images/gallery07/3bc960ad.gif?v=4ca63763"/>
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
