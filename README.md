@@ -14,7 +14,7 @@ Machi . ✧. she/her . ⊹ european
 </h5>  
 <h4 align="center">
 
-cuddles r okay ! more info below ! <img src="https://enchantments.carrd.co/assets/images/gallery15/edc17497.gif?v=91d4e59c"/>
+cuddles r okay ! more info below ! <img src="https://64.media.tumblr.com/390afde01f0221208769f9a5a2506347/b2e4be8b5593f8a7-a4/s75x75_c1/05a7df94b3a0198e36e892d066427b5068cf2578.gifv"/>
 
 for any questions or concerns , [guestbook](https://lotusnilotpala.123guestbook.com/) , info in [rentry](https://rentry.org/LotusNilotpala) !
 
