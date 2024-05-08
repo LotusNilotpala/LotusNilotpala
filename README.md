@@ -31,6 +31,6 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 
 crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
 
-made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://xyz.crd.co/assets/images/gallery11/f77a4fb2.gif?v=4ca63763"/>
+made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv"/>
 
 
