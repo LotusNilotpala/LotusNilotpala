@@ -10,7 +10,7 @@
 Machi . ✧. she/her . ⊹ european
 </h4> 
 <h5 align="center">
-<img src="https://cdn.discordapp.com/attachments/816662275925606471/1237726186013065288/39C7F955-2E86-455B-9F87-93AD630B52BA.gif?ex=663cb1d6&is=663b6056&hm=9e46fb4053335af2ebb6eef6d4264a4acd4c297dc87ac71dfa06c4d84a012267&"/>
+<img src="https://64.media.tumblr.com/ee7656790a5899f72b1a6fc79008afca/745d50887fb3907e-01/s500x750/062d6cda0745499109d283074f8ab6d87ab11415.gifv"/>
 </h5>  
 <h4 align="center">
 
