@@ -16,7 +16,7 @@ Machi . ✧. she/her . ⊹ european
 
 cuddles r okay ! more info below ! <img src="https://64.media.tumblr.com/390afde01f0221208769f9a5a2506347/b2e4be8b5593f8a7-a4/s75x75_c1/05a7df94b3a0198e36e892d066427b5068cf2578.gifv"/>
 
-for any questions or concerns , [guestbook](https://lotusnilotpala.123guestbook.com/) , info in [rentry](https://rentry.org/LotusNilotpala) !
+for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/LotusNilotpala) !
 
 also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info :33 ! <img src="https://ouija.crd.co/assets/images/gallery16/6e077c74.gif?v=b8c53f22"/>
 </h4> 
