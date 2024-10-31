@@ -10,7 +10,7 @@
 Machi . ✧. she/her . ⊹ european
 </h4> 
 <h5 align="center">
-<img src="https://media1.tenor.com/m/Ja1IWtwuMQsAAAAd/lati-hsr.gif"/>
+<img src="[https://media1.tenor.com/m/Ja1IWtwuMQsAAAAd/lati-hsr.gif](https://tenor.com/pt-PT/view/mizisua-sua-ruler-of-my-heart-alnst-alien-stage-gif-4257361960129501105)"/>
 </h5>  
 <h4 align="center">
 
