@@ -20,7 +20,7 @@ for any questions or concerns , [retro](https://retrospring.net/@Machii) , info 
 
 also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info :33 ! 
 
-<img src="https://files.catbox.moe/vws6u2.png"/>
+<img src="https://ouija.crd.co/assets/images/gallery54/76bc5d2b_original.png?v=583c876b"/>
 </h4> 
 
 <h5 align="center">
@@ -28,7 +28,7 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 
 ***
 <p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery54/76bc5d2b_original.png?v=583c876b"/>
+<img src="https://files.catbox.moe/vws6u2.png"/>
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
