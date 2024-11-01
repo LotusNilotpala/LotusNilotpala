@@ -14,11 +14,11 @@ Machi . ✧. she/her . ⊹ european
 </h5>  
 <h4 align="center">
 
-cuddles r okay ! more info below ! <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
+cuddles r okay , more info below. <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
 
-for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/LotusNilotpala) !
+for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/LotusNilotpala).
 
-also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info :33 ! 
+also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info. 
 
 <img src="https://ouija.crd.co/assets/images/gallery54/76bc5d2b_original.png?v=583c876b"/>
 </h4> 
