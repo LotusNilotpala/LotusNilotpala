@@ -14,7 +14,7 @@ Machi . ✧. she/her . ⊹ european
 </h5>  
 <h4 align="center">
 
-cuddles r okay , more info below. <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
+cuddles are okay , more info below. <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
 
 for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/LotusNilotpala).
 
