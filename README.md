@@ -24,7 +24,7 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 </h4> 
 
 <h5 align="center">
-<img src="."/>
+
 
 ***
 <p align ="center">
