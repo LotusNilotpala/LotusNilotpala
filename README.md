@@ -3,7 +3,7 @@
   
 <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/> [' ' Rise up into my.. World!! . . ♥ ' '](https://open.spotify.com/episode/5krrpmcylkaNyPWdWwDxg3) <img src="https://ouija.crd.co/assets/images/gallery18/00be8d6c.gif?v=b8c53f22"/>
 <h5 align="center">
-<img src="https://64.media.tumblr.com/7bea89088ffa5b93bf2d2a8fa2e14238/33c129c1226d76ac-10/s400x600/c6efc37456169a45f999b703b7f0c6fa8e8b646a.pnj"/>
+<img src="https://files.catbox.moe/vws6u2.png"/>
 </h5>  
 
 <h4 align="center">
@@ -18,7 +18,9 @@ cuddles r okay ! more info below ! <img src="https://64.media.tumblr.com/390afde
 
 for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/LotusNilotpala) !
 
-also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info :33 ! <img src="https://ouija.crd.co/assets/images/gallery16/6e077c74.gif?v=b8c53f22"/>
+also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info :33 ! 
+
+<img src="https://files.catbox.moe/vws6u2.png"/>
 </h4> 
 
 <h5 align="center">
