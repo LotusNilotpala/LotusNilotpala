@@ -14,7 +14,7 @@ Machi . ✧. she/her . ⊹ european
 </h5>  
 <h4 align="center">
 
-cuddles r okay ! more info below ! <img src="https://64.media.tumblr.com/390afde01f0221208769f9a5a2506347/b2e4be8b5593f8a7-a4/s75x75_c1/05a7df94b3a0198e36e892d066427b5068cf2578.gifv"/>
+cuddles r okay ! more info below ! <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
 
 for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/LotusNilotpala) !
 
@@ -28,11 +28,11 @@ also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilot
 
 ***
 <p align ="center">
-<img src="https://ouija.crd.co/assets/images/gallery08/7c5d9125.gif?v=b8c53f22"/> <img src="https://xyz.crd.co/assets/images/gallery07/3bc960ad.gif?v=4ca63763"/>
+<img src="https://ouija.crd.co/assets/images/gallery54/76bc5d2b_original.png?v=583c876b"/>
 </p>
 
 crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
 
-made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://64.media.tumblr.com/7239b800884d74fdeb6745c3f5b31e05/cbf45af389954474-de/s75x75_c1/dcd129e298bd7eb92aefb72740cdd849d1b39e2d.gifv"/>
+made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://ouija.crd.co/assets/images/gallery52/8701c7d6_original.gif?v=583c876b"/>
 
 
