@@ -18,7 +18,7 @@ cuddles are okay , more info below. <img src="https://ouija.crd.co/assets/images
 
 for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/LotusNilotpala).
 
-also reccommend to check my [pronouns page](https://en.pronouns.page/@MachiNilotpala) for further info. 
+also reccommend to check my [pronouns page](https://en.pronouns.page/@Machiyko) for further info. 
 
 <img src="https://ouija.crd.co/assets/images/gallery54/76bc5d2b_original.png?v=583c876b"/>
 </h4> 
