@@ -16,7 +16,7 @@ Machi . ✧. she/her . ⊹ european
 
 whisper to int , more info below. <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
 
-for any questions or concerns , [atabook](https://lotusnilotpala.atabook.org/) , all the details are in my [rentry](https://rentry.org/warmbreeze).
+for any questions or concerns , [atabook](https://machiyko.atabook.org/) , all the details are in my [rentry](https://rentry.org/warmbreeze).
 
 feel free to check my [pronouns page](https://en.pronouns.page/@Machiyko) for further info. 
 
