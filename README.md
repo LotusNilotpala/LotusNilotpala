@@ -14,11 +14,11 @@ Machi . ✧. she/her . ⊹ european
 </h5>  
 <h4 align="center">
 
-cuddles are okay , more info below. <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
+whisper to int , more info below. <img src="https://ouija.crd.co/assets/images/gallery52/aab8fafc_original.gif?v=583c876b">
 
-for any questions or concerns , [retro](https://retrospring.net/@Machii) , info in [rentry](https://rentry.org/warmbreeze).
+for any questions or concerns , [atabook](https://lotusnilotpala.atabook.org/) , all the details are in my [rentry](https://rentry.org/warmbreeze).
 
-also recommend to check my [pronouns page](https://en.pronouns.page/@Machiyko) for further info. 
+feel free to check my [pronouns page](https://en.pronouns.page/@Machiyko) for further info. 
 
 <img src="https://ouija.crd.co/assets/images/gallery54/76bc5d2b_original.png?v=583c876b"/>
 </h4> 
@@ -31,7 +31,7 @@ also recommend to check my [pronouns page](https://en.pronouns.page/@Machiyko) f
 <img src="https://files.catbox.moe/vws6u2.png"/>
 </p>
 
-crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics !!
+crd to [ouija](https://ouija.crd.co/#) / [watermelon](https://watermelon.crd.co) for dividers n stamps , [Vashuu](https://www.tumblr.com/darlingtyphoon) for graphics.
 
 made by [Orph](https://github.com/Ovrpheus) !!  You're welcome Machi <img src="https://ouija.crd.co/assets/images/gallery52/8701c7d6_original.gif?v=583c876b"/>
 
