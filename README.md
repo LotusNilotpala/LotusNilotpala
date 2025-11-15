@@ -20,7 +20,7 @@ for any questions or concerns , [atabook](https://machiyko.atabook.org/) , all t
 
 feel free to check my [pronouns page](https://en.pronouns.page/@Machiyko) for further info. 
 
-<img src="https://ouija.crd.co/assets/images/gallery54/76bc5d2b_original.png?v=583c876b"/>
+<img src="https://upload-os-bbs.hoyolab.com/upload/2025/06/11/163732817/1c41a5015c02d12abe802d721734301f_4985487514380531290.gif"/>
 </h4> 
 
 <h5 align="center">
